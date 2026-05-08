@@ -1,4 +1,4 @@
-
+re:rangers x hidden Script offers the most advanced re:rangers x Script, with undetectable and instant win. Perfect for dominating any match.
 
 
 
